@@ -1,3 +1,1 @@
-# Silbersittich
-Na gut...
-Wenn Sie
+#fuckedupworld
